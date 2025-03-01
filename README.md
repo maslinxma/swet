@@ -5,10 +5,6 @@
 <p>✨ En güncel giriş adresi ile kesintisiz oyun keyfi için aşağıdaki bağlantıyı kullanabilirsiniz: 👇👇</p>
 <p>🔗 <a href="http://www.redly.vip/3A5tsFl" target="_blank"><strong>[Sweet Bonanza Oyna ✅]</strong></a></p>
 
-<a href="http://www.redly.vip/3A5tsFl" title="Sweet Bonanza Oyna"> 
-<img src="https://i.ibb.co/3CM8Hpz/sweet-bonanza-slot.jpg" alt="Sweet Bonanza Oyna" style="max-width: 100%; border: 3px solid #ff66b2; border-radius: 15px; box-shadow: 0px 0px 15px rgba(255, 102, 178, 0.8);"> 
-</a>
-
 <h3>🍬 Sweet Bonanza Slot Özellikleri 🎯</h3>
 <ul>
 <li>🎡 6 makaralı, şeker temalı slot oyunu</li>
